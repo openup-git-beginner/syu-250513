@@ -1,0 +1,4 @@
+- 이름: 지상 최강의 남자 최민규
+- 학과: 인공지능융합학부부
+- Instargram: _suoooo_
+- youtube: https://www.youtube.com/@spookyrunner
